@@ -1,2 +1,2 @@
-18 - diagnosed bipolar disorder
+18 diagnosed bipolar disorder
 cisgender male
