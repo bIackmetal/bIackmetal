@@ -1,1 +1,2 @@
-rentry being made soon !
+18 - diagnosed bipolar disorder
+cisgender male
